@@ -1,4 +1,4 @@
-**`qw3rty q. qw3rty. Creator of all things unholy fuck my life AHHHHHHHH`**
+**`qw3rty q. qw3rty, creator of all things unholy fuck my life AHHHHHHHH`**
 
 
 ###### Socials
